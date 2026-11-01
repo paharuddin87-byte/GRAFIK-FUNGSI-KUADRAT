@@ -1,0 +1,2 @@
+# GRAFIK-FUNGSI-KUADRAT
+matematika
